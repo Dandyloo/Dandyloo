@@ -2,6 +2,7 @@
 
 🧠 Computer science student at UCC. <br/>
 💡 Building cool stuff with clean code.<br/>
+🎾🏐 Smashes on court, commits online.<br/>
 
 
 ## 🌐 Socials:
