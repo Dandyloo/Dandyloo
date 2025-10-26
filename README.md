@@ -1,4 +1,4 @@
-## Hi, I'm Dandy 😌
+## Hi, I'm ƊムƝƊƳ🤍
 
 🧠 Computer science student at UCC. <br/>
 💡 Building cool stuff with clean code.<br/>
